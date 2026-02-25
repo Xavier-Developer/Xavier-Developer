@@ -1,4 +1,4 @@
-# 𝐇𝐞𝐥𝐥𝐨 , 𝐈𝐦 𝐗𝐚̀𝐯𝐢𝐞̀𝐫 𝐀𝐊𝐀 𝐒𝐚𝐢𝐟
+# 𝐇𝐞𝐥𝐥𝐨 , 𝐈𝐦 𝐗𝐚̀𝐯𝐢𝐞̀𝐫 𝐀𝐊𝐀 𝐒𝐞𝐢𝐟
 
 <p align="center">
   <img src="https://i.postimg.cc/XqSKQTj5/Gemini-Generated-Image-cdncuwcdncuwcdnc-(1)-Photoroom.png" alt="Vortex Banner" width="800" />
