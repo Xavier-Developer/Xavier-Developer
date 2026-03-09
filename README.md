@@ -1,7 +1,7 @@
 # 𝐇𝐞𝐥𝐥𝐨 , 𝐈𝐦 𝐗𝐚̀𝐯𝐢𝐞̀𝐫 𝐀𝐊𝐀 𝐒𝐞𝐢𝐟
 
 <p align="center">
-  <img src="https://i.postimg.cc/MpXqqQdW/proff-wall.png" alt="Vortex Banner" width="800" />
+  <img src=https://i.postimg.cc/X7TKh2xn/xavier-prime.png width="800" />
 </p>
 
 # **𝑷𝒓𝒐𝒇𝒇𝒆𝒔𝒊𝒐𝒏𝒂𝒍 𝑭𝒖𝒍𝒍𝒔𝒕𝒂𝒄𝒌 𝑫𝒆𝒗𝒆𝒍𝒐𝒑𝒆𝒓**
