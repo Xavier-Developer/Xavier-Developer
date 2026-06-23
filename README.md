@@ -1,14 +1,14 @@
 # 𝐇𝐞𝐥𝐥𝐨 , 𝐈𝐦 𝐗𝐚̀𝐯𝐢𝐞̀𝐫 𝐀𝐊𝐀 𝐒𝐞𝐢𝐟
 
 <p align="center">
-  <img src=https://i.postimg.cc/9FKMQGYq/Xavier-banner-prime-6.png width="800" />
+  <img src="https://i.postimg.cc/W1qyWgcM/Gemini-Generated-Image-oibrtpoibrtpoibr-Photoroom.png" width="800" />
 </p>
 
-# **𝑷𝒓𝒐𝒇𝒇𝒆𝒔𝒊𝒐𝒏𝒂𝒍 𝑭𝒖𝒍𝒍𝒔𝒕𝒂𝒄𝒌 𝑫𝒆𝒗𝒆𝒍𝒐𝒑𝒆𝒓**
+# **𝑷𝒓𝒐𝒇𝒆𝒔𝒔𝒊𝒐𝒏𝒂𝒍 𝑭𝒖𝒍𝒍𝒔𝒕𝒂𝒄𝒌 𝑫𝒆𝒗𝒆𝒍𝒐𝒑𝒆𝒓**
 
 ---
 
-## 🔹 𝑳𝒂𝒏𝒈𝒖𝒂𝒈𝒆𝒔 & 𝑭𝒓𝒂𝒎𝒆𝒘𝒐𝒓𝒌𝒔
+## 🔹 𝑳𝒂𝒏𝒈𝒖𝒂𝒈𝒆𝒔 & 𝑭𝒓𝒂𝒎𝒆𝘘𝒐𝒓𝒌𝒔
 
 ### 🔹 𝑭𝒓𝒐𝒏𝒕𝒆𝒏𝒅
 ![HTML5](https://img.shields.io/badge/HTML5-E34F26?style=for-the-badge&logo=html5&logoColor=white)
@@ -49,8 +49,4 @@
 
 ---
 𝑪𝒐𝒏𝒕𝒂𝒄𝒕 𝒎𝒆 𝒐𝒏 :
-𝑫𝒊𝒔𝒄𝒐𝒓𝒅 : ```𝒐𝒏𝒍𝒚.𝒃𝒊9𝒍```
-
----
-" 𝐗𝐚̀𝐯𝐢𝐞̀𝐫 𝐓𝐡𝐞 𝐁𝐞𝐬𝐭 "
----
+𝑫𝒊𝒔𝒄𝒐𝒓𝒅 : ```𝒐𝒏𝒍𝒚.𝒃𝒊9𝒍
